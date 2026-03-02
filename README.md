@@ -1,16 +1,33 @@
-## Hi there 👋
+<p align="center">
+    <img width="150" src="https://files.catbox.moe/hiu2dv.gif"
+</p>
 
-<!--
-**angeliism/angeliism** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+
+<p align="center">
+    <img width="500" src="https://files.catbox.moe/26w1nn.png"
+</p>
+
+***<p align="center">If you had seen the look her face
+… would you have still judged me?***    
+  
+   
+  
+
+<p align="center">
+    <img width="500" src="https://files.catbox.moe/x9wcii.png"
+</p>
+
+<p align="center">  mostly afk, whisper to interact if i'm on idle .
+  
+<p align="center">c + h always, feel free to sit with me or behind me even if my friends are there, they do not mind .
+<p align="center"> same fandoms please interact ! i love speaking about my fixations with others <3
+<p align="center"> i have adhd and bpd so please be patient with me if i'm suddenly quiet .  
+
+<p align="center">
+    <img width="150" src="https://files.catbox.moe/5qvuc2.png"
+</p>  
+
+ <p align="center"> this is currently a wip !
